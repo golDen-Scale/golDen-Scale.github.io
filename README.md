@@ -1,1 +1,1 @@
-# golDen-Scale-golDen-Scale.github.io
+# golDen-Scalee.github.io
